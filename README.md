@@ -12,7 +12,7 @@ Meu nome é Nathalia Kolodi
 
 nathalia.kolodi.santos@escola.pr.gov.br
 
-@Sm1lle_nathyy
+@nthkolodi
 
 ![](https://media.tenor.com/tJyK18R2CUMAAAAC/billie-eilish.gif
 )
